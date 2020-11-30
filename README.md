@@ -1,1 +1,1 @@
-# Oreo-truffles
+Crushed oreos stuck together with cream cheese covered in a layer of chocolate.
